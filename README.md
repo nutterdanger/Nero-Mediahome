@@ -213,4 +213,4 @@ Nero MediaHome is available as a complete free version, offering all features an
 Discover the full potential of your media with **Nero MediaHome**. Download now and elevate your home entertainment experience!
 
 ---
-**Last updated:** 2026-10-03 19:34:49 UTC
+**Last updated:** 2026-10-03 22:32:32 UTC
